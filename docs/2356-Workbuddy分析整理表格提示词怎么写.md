@@ -1,4 +1,4 @@
-# Workbuddy分析整理表格  提示词怎么写
+# Workbuddy分析整理表格 提示词怎么写
 
 > 原文链接：[https://www.laoshoucun.com/workbuddyzl/2356](https://www.laoshoucun.com/workbuddyzl/2356)
 
