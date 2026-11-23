@@ -1,4 +1,4 @@
-# Workbuddy怎么帮我们整理编辑资料  提示词怎么写
+# Workbuddy怎么帮我们整理编辑资料 提示词怎么写
 
 > 原文链接：[https://www.laoshoucun.com/workbuddyzl/2343](https://www.laoshoucun.com/workbuddyzl/2343)
 
